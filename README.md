@@ -4,5 +4,5 @@
 - 🔭 Atualmente estou trabalhando em Suporte Técnico
 - 🌱 Atualmente estou aprendendo QA
 - 😄 Pronomes: Ela/Dela
-- ⚡ Curiosidade: Tenho 3 gatos e estou em processo de transiçãode de carreira
+- ⚡ Curiosidade: Tenho 3 gatos e estou em processo de transição de carreira
 
